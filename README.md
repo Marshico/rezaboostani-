@@ -33,7 +33,7 @@
 
 - Email: **r.boostani.93@gmail.com**  
 - LinkedIn: [linkedin.com/in/rezaboostani](https://www.linkedin.com/in/rezaboostani/)  
-- Portfolio: *(coming soon)*
+- Portfolio: https://www.rezaboostani.com/
 
 ---
 
